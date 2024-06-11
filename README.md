@@ -6,7 +6,7 @@
 - 🤔 I’m looking for help with N/A
 - 💬 Ask me about calculus
 - 📫 How to reach me: +1(810)618-0604
-- 😄 Pronouns: she/her
+- 😄 Pronouns: she/they
 - ⚡ Fun fact: I hate English
 -->
 
